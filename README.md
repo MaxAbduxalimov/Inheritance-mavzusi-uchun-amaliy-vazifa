@@ -1,0 +1,1 @@
+# Inheritance-mavzusi-uchun-amaliy-vazifa
